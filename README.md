@@ -1,3 +1,3 @@
 # CGO20PreScalerArtifact
 
-https://hongik-my.sharepoint.com/:f:/g/personal/mrk1332_mail_hongik_ac_kr/EqNiti0C81VItCUIPHRlQHcBIGueuN-r5czhjk3mQwtXdg?e=3gf3r6
+https://drive.google.com/drive/folders/1FVBoguIjIx_Y4Gu8h3-bj41PFgmk9a8D?usp=sharing
